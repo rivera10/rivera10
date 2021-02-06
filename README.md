@@ -9,7 +9,7 @@ Marie Skłodowska-Curie fellow at [ITN-IGNITE](http://www.itn-ignite.eu/)
 ![IGNITE](https://sync.palmuc.org/index.php/s/ofrPH6jTtNdBWA7/preview) 
 
 Follow me on: 
-- [Twitter](https://twitter.com/nomar_07)
+- [Twitter](https://twitter.com/RERV787)
 - [Google Scholar](https://scholar.google.com/citations?user=fH-cnO0AAAAJ&hl=en)
 
 
